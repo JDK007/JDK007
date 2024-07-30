@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JDK007
-- 👀 I’m interested in videography, tennis, money
+- 👀 I’m interested in videography, tennis n money
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on bizness
 - 📫 How to reach me ... you dont.
